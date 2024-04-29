@@ -5,6 +5,10 @@
 
 - 📫 How to reach me **u19cs2105t.siva@gmail.com**
 
+- 📄 Know about my experiences [https://purple-cynthea-18.tiiny.site](https://purple-cynthea-18.tiiny.site)
+
+- ⚡ Fun fact **94% of businesses report significant improvements in online security after moving data into the cloud.**
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/sivanesan-t-7b2212247" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="sivanesan-t-7b2212247" height="30" width="40" /></a>
