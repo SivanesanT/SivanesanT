@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **u19cs2105t.siva@gmail.com**
 
-- 📄 Know about my experiences [https://purple-cynthea-18.tiiny.site](https://purple-cynthea-18.tiiny.site)
+- 📄 Know about my experiences [https://sivanesansresume.tiiny.site/](https://sivanesansresume.tiiny.site/)
 
 - ⚡ Fun fact **94% of businesses report significant improvements in online security after moving data into the cloud.**
 
